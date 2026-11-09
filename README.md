@@ -1,0 +1,1 @@
+# Kiberxavfsizlik o'quv rejam
